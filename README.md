@@ -1,3 +1,6 @@
+
+ponytown's cub! @pt-walk-of-fame @pt-hall-of-media
+<br>
 everyone's favorite cuddle buddy.. 
 <br>
 <img src="https://files.catbox.moe/hs3uta.png" width="375" align="left" alt="furscent">
