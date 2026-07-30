@@ -1,5 +1,7 @@
 everyone's favorite cuddle buddy.. 
 <br>
+HI TO MY OMFS!! CAM, RABI, GLAM AND COLLIE ❤
+<br>
 <img src="https://files.catbox.moe/hs3uta.png" width="375" align="left" alt="furscent">
 <br>
 
