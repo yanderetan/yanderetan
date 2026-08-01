@@ -1,4 +1,4 @@
-hiyoo 🐕 [pt-walk-of-fame](pt-walk-of-fame) 🧸 [pt-hall-of-media](pt-hall-of-media) 🐇 [pt-fashion](https://github.com/pt-fashion) 
+hiyoo 🐕 [pt-walk-of-fame](pt-walk-of-fame) 🧸 [pt-hall-of-media](pt-hall-of-media) 🐇 [pt-fashion](https://github.com/pt-fashion) 🦴 [fans-town](https://github.com/fans-town) 
 <br>
 
 <br>
